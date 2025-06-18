@@ -16,3 +16,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
+## bangla resourse 
+https://www.youtube.com/playlist?list=PL_1lo5T7Y0ExlKfV8bUMRUOvQ_U_KZgOK
+https://www.youtube.com/watch?v=Fy7Ao82EEtk
+https://www.youtube.com/playlist?list=PLSNRR4BKcowBkHYYumZffsZ3G52hPqRjc
+
+## Apna College
